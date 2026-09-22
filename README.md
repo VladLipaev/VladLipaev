@@ -3,7 +3,7 @@
 
 - 🔭 I’m currently working on **myself**
 
-- 👯 I’m looking to collaborate on **agentic coding to optimize money on people who do nothing and get money**
+- 👯 I’m looking to collaborate on **agentic coding to get money quick**
 
 - 🤝 I’m looking for help with **AI Native Engineers**
 
